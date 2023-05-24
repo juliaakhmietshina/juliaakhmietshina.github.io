@@ -1,1 +1,0 @@
-# juliaakhmietshina.github.io
